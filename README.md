@@ -1,0 +1,2 @@
+# wilkamToYourGroupActivityWhereYouAreAboutToExplodeYourMIND
+CHOOSE WHAT GROUP YOU ARE AND READ THE INSTRUCTION KIR-FU-LI TO AVOID MISINTRIPRETATION AND CONFUSION, Thank you A lots and Daghang salamat.
